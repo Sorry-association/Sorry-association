@@ -1,0 +1,6 @@
+- Hi, I’m @Sorry-association! I'm new to GitHub. 
+- I’m currently learning HTML and JavaScript. (And game developing, if that counts)
+- I’m looking to collaborate on any projects including Python, HTML, and Visual Basic! (Mostly website development)
+- How to reach me: You can't. 
+- Pronouns: None. Don't refer to me at all, please.
+- Fun fact: The Unimaginable Horrors of the Oceans are much more terrifying (and real) than the Unimaginable Horrors of Outer Space.
